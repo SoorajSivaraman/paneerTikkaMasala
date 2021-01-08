@@ -14,4 +14,4 @@
 
 6) Then add cooked paneer and vegetables, garam masala powder, cream as needed and cook for 3 minutes and garnish it with coriander leaves.
 
-YUMMY PANEER TIKKA MASALA IS READY TO BE SERVED !!!!
+YUMMY PANEER TIKKA MASALA IS READY TO BE SERVED !!
